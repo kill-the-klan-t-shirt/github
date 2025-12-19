@@ -1,12 +1,5 @@
-kill the klan t shirt
-
-
-T-shirts celebrating Ashland's now world-famous drunk raccoon are here, Hanover County Animal Protection announced Wednesday.
-
-https://www.bonfire.com/trashed-panda-t-shirt/
-
-
-Trashed Panda T Shirt    is a bold, quirky, and eco-conscious fashion statement. Featuring a playful design of a mischievous panda rummaging through trash, this tee blends humor with streetwear style. Made from soft, breathable cotton, it’s perfect for casual wear, festivals, or anyone who loves unique graphic tees with personality. Durable print and comfortable fit make it a must-have for panda lovers and trendsetters alike.
+kill the klan t shirt T-shirts celebrating Ashland's now world-famous drunk raccoon are here, Hanover County Animal Protection announced Wednesday. Trashed Panda T Shirt    is a bold, quirky, and eco-conscious fashion statement. Featuring a playful design of a mischievous panda rummaging through trash, this tee blends humor with streetwear style. Made from soft, breathable cotton, it’s perfect for casual wear, festivals, or anyone who loves unique graphic tees with personality. Durable print and comfortable fit make it a must-have for panda lovers and trendsetters alike. 
+SHOP:: https://www.bonfire.com/trashed-panda-t-shirt/
 
 The big picture: The shelter partnered with Richmond-based custom apparel maker Bonfire to create a limited-edition tee to commemorate our soused masked bandit.
 
